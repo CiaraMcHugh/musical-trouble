@@ -1,1 +1,1 @@
-Music is great.
+Music is _awesome_!
