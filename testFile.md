@@ -1,1 +1,1 @@
-This file lacks some imagination
+Music is great.
